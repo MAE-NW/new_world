@@ -1,3 +1,1 @@
-(
-"copyr": " BY MOHAMED AE"
-}
+BY MOHAMED AE
