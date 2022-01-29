@@ -1,1 +1,2 @@
-BY MOHAMED AIT ELKADI //??!!;;::'"*##@_&-+()/]}({<>&_$¢¥-#|√°¶=∆=}®¶°https://www.google.com/simo
+copyright© 2022
+BY MOHAMED AIT ELKADI
