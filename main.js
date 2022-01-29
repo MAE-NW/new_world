@@ -1,3 +1,3 @@
 (
-"copyr": " BY MOHAMED A.E"
+"copyr": " BY MOHAMED AE"
 }
