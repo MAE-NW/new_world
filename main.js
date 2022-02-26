@@ -1,1 +1,0 @@
-https://cherry.img.pmdstatic.net/fit/https.3A.2F.2Fimg.2Egaming.2Egentside.2Ecom.2Fs3.2Ffrgsg.2Fanime.2Fdefault_2021-04-02_a25b8282-cad0-4ae2-acd7-3f9040b83ef2.2Epng/480x270/quality/80/les-20-animes-tires-des-meilleurs-mangas-de-l-histoire.jpg(588x282:812x506)/cdn.vox-cdn.com/uploads/chorus_image/image/70412073/0377c76083423a1414e4001161e0cdffb0b36e1f_760x400.0.png
